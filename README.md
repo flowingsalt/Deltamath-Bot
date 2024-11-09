@@ -1,4 +1,8 @@
-shit is long gone got patched like last year i have another one but its an app so maybe ill release idk
+Unlock the power of efficient learning with our Deltamath hacks! 
 
-released at schoolcheats!
-https://schoolcheats.net/deltamath
+Designed to help students master Deltamath questions effortlessly, our tool provides accurate answers and valuable insights to enhance your problem-solving skills. 
+
+Released at School Cheats, https://schoolcheats.net/deltamath
+
+For real-time support, join our Discord server, https://discord.gg/schoolcheats
+Explore our Deltamath hacks today and take your learning experience to the next level!
