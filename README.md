@@ -1,4 +1,4 @@
-Unlock the power of efficient learning with our Delta hacks! 
+Unlock the power of efficient learning with our Deltamath hacks! 
 
 Designed to help students master Delta questions effortlessly, our tool provides accurate answers and valuable insights to enhance your problem-solving skills. 
 
